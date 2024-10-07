@@ -1,1 +1,2 @@
 Charles Loughin
+loughinc@oregonstate.edu
